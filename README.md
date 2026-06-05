@@ -66,5 +66,6 @@ DATE; ?????????/ also 2 years ago. If u recognise this drawing from that SPECIFI
 DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u recognise this drawing DNI.
 <img width="550" height="815" alt="Untitled487" src="https://github.com/user-attachments/assets/69bdde3f-82da-4541-9d89-90fb50b1d428" />
 -
+NOTE DATE; 05/06/26
 HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UNABLE TO FINISH ALL OF THEM. (╥﹏╥)
-as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing
+as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing. There was supposed to be more drawings here but oh well, my phone broke and my phone contained all of the drawings I had. Had to dig real hard on discord to find some of my drawings i sent to my friends lol
