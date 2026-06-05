@@ -49,6 +49,11 @@ DATE; 10/02/26
 I LOVEEE SCP 507 HES ONE OF MY COMF CHARS AWWH CUTE SILLY SCP 507 I LOVE YOUUUUUU
 -
 
+DATE; ???? This was on halloween in 2025
+VAMPIRE SPY BLEHBLEHBELHHH!!
+<img width="459" height="918" alt="VAMPIE SPY" src="https://github.com/user-attachments/assets/81d51c07-f6be-4021-8be1-bd679f60c037" />
+- 
+
 DATE; ????? This was 2 years ago
 <img width="689" height="919" alt="IMG_20240909_055915" src="https://github.com/user-attachments/assets/45b2ef70-85fc-43dc-ba90-60aa71667df3" />
 very old drawing loll
