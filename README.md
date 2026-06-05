@@ -1,17 +1,63 @@
 # Some-goofy-doodle-art-dump-
 jst sharing some doodles and drawings of mine for others to see!!
-
+DATE; 01/06/26
 <img width="487" height="226" alt="Screenshot 2026-06-01 160955" src="https://github.com/user-attachments/assets/014f5bc0-c14f-40a6-8c62-aa7996f1fdfa" />
 <img width="746" height="682" alt="Screenshot 2026-06-01 163116" src="https://github.com/user-attachments/assets/0ea692ed-ba19-4a98-b586-dd356041036f" />
 <img width="463" height="349" alt="Screenshot 2026-06-01 170340" src="https://github.com/user-attachments/assets/929afaf1-afa3-4a9b-bcd2-ab58f55ead85" />
 these were drawn with my broken mouse so these looks a bit wonky. Its hard drawing with a broken mouse sobs.
 MORE STUFFS WILL BE ADDED!!!
+-
+DATE; 05/06/26
 <img width="398" height="315" alt="Screenshot 2026-06-04 214352" src="https://github.com/user-attachments/assets/f4031548-26f5-4da6-9809-4f3f96e3c567" />
 tavros from homestuck i drew for my friend. im not into homestuck or know anything about it. i jst made this for them lol
+-
+
+DATE; ??/??/?? I FORGOT WHEN I DREW THIS IM SORRY IT WAS MONTHS AGO
 <img width="459" height="918" alt="oldbilleeyy" src="https://github.com/user-attachments/assets/5929bd3c-324a-4d11-ba5e-b7da9918e85e" />
 <img width="459" height="918" alt="Screenshot_2026-02-25-15-20-45-276_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/23fa0deb-0fbd-4602-b7f3-4d127da53a71" />
 OLD BILLY AND CAPTAIN MARVEL SKETCH I DREW ON MY PHONE RAAAH
+-
+
+DATE; Forgot the date too. months ago
 <img width="459" height="918" alt="Screenshot_2026-02-24-22-35-14-170_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/23634334-d125-4078-aa7f-261405efb062" />
 OLD SAINTWALKER WIP TOO!!!
+-
+
+DATE; Also forgot
 <img width="1082" height="919" alt="Untitled5_20260224120711" src="https://github.com/user-attachments/assets/fb0dd6f9-17b2-424d-ba19-4dfe3cc6a37f" />
 seal and narwhal :3 all of dis were drawn on my phone soo
+-
+
+DATE; 08/05/26
+<img width="919" height="919" alt="Untitled13" src="https://github.com/user-attachments/assets/dd244e78-b82a-467a-8095-bb5df7c5123f" />
+ANOTHER BILLY SKETCH YAYAYA
+-
+
+DATE; 30/04/26 
+<img width="459" height="918" alt="Screenshot_2026-04-30-01-33-35-814_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/3836cdbc-b827-4980-ad47-a519a8f60865" />
+GOLDEN GLIDER SKETCH!!!!!
+-
+
+DATE; 24/02/26
+<img width="459" height="918" alt="Screenshot_2026-02-24-22-25-44-808_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/e7084dd0-90fe-4087-a8c7-b059112a400f" />
+<img width="459" height="918" alt="Screenshot_2026-01-25-13-07-51-369_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/b6e4473f-c36d-49e9-a371-7961b09514d5" />
+thats Set btw. the blue one, not Turbo. Thats one of the Turbotwins
+-
+
+DATE; 10/02/26
+<img width="459" height="918" alt="Screenshot_2026-02-10-13-29-48-304_jp ne ibis ibispaintx app" src="https://github.com/user-attachments/assets/0d852d63-31db-457b-ab87-9c963ed461dd" />
+I LOVEEE SCP 507 HES ONE OF MY COMF CHARS AWWH CUTE SILLY SCP 507 I LOVE YOUUUUUU
+-
+
+DATE; ????? This was 2 years ago
+<img width="689" height="919" alt="IMG_20240909_055915" src="https://github.com/user-attachments/assets/45b2ef70-85fc-43dc-ba90-60aa71667df3" />
+very old drawing loll
+-
+
+DATE; ?????????/ also 2 years ago. If u recognise this drawing from that SPECIFIC discord server and is friends with THAT person, DNI. I hate all of you youre all disgusting
+<img width="676" height="918" alt="Untitled381" src="https://github.com/user-attachments/assets/90eeea4f-4a8e-4b5b-9f0d-75e93f283d4b" />
+-
+
+DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u recognise this drawing DNI.
+<img width="550" height="815" alt="Untitled487" src="https://github.com/user-attachments/assets/69bdde3f-82da-4541-9d89-90fb50b1d428" />
+
