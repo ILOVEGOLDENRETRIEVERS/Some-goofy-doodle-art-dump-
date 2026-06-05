@@ -62,3 +62,4 @@ DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u
 <img width="550" height="815" alt="Untitled487" src="https://github.com/user-attachments/assets/69bdde3f-82da-4541-9d89-90fb50b1d428" />
 -
 HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UNABLE TO FINISH ALL OF THEM. (╥﹏╥)
+as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing
