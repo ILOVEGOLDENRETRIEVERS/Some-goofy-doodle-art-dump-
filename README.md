@@ -86,3 +86,7 @@ DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u
 NOTE DATE; 05/06/26
 HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UNABLE TO FINISH ALL OF THEM. (╥﹏╥)
 as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing. There was supposed to be more drawings here but oh well, my phone broke and my phone contained all of the drawings I had. Had to dig real hard on discord to find some of my drawings i sent to my friends lol. I also only use a mouse for all of my drawings in my pc
+-
+DATE; 05/06/26
+not an art but like check up my epic cute and awesome saucers supermna figurine. jhes so cute and handsom e look at my son awhhh so cutie patootiee i love him. also yes, thats a stanley parable poster in the background
+<img width="3008" height="4016" alt="IMG_20260113_163704" src="https://github.com/user-attachments/assets/c749bf56-70fb-45c0-acf0-fa4e41f10346" />
