@@ -85,4 +85,4 @@ DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u
 -
 NOTE DATE; 05/06/26
 HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UNABLE TO FINISH ALL OF THEM. (╥﹏╥)
-as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing. There was supposed to be more drawings here but oh well, my phone broke and my phone contained all of the drawings I had. Had to dig real hard on discord to find some of my drawings i sent to my friends lol
+as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing. There was supposed to be more drawings here but oh well, my phone broke and my phone contained all of the drawings I had. Had to dig real hard on discord to find some of my drawings i sent to my friends lol. I also only use a mouse for all of my drawings in my pc
