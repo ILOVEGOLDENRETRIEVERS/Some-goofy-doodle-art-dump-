@@ -148,5 +148,5 @@ DATE; ???2025
 
 <img width="408" height="815" alt="oldoc lol" src="https://github.com/user-attachments/assets/9da378e2-6101-4cd5-b80f-1513ad755deb" />
 
-my old oc.... hes a pony :3 
+my old oc.... hes a old pony :3 
 -
