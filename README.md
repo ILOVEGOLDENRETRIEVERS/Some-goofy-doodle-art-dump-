@@ -77,11 +77,12 @@ VAMPIRE SPY BLEHBLEHBELHHH!!
 
 <img width="459" height="918" alt="VAMPIE SPY" src="https://github.com/user-attachments/assets/81d51c07-f6be-4021-8be1-bd679f60c037" />
 - 
+
 DATE; ???? IDK
 
 <img width="512" height="466" alt="i missmy phone" src="https://github.com/user-attachments/assets/680ede13-1f87-4ac1-a275-83e68031448b" />
 
-drew this in my computer to mourn my broken phone sobs. Also drew my friends broken ipad so we could mourn together
+drew this in my computer to mourn my broken phone sobs. Also drew my friends broken ipad so we could mourn together. 4TH PC DRAWING!!!
 -
 
 DATE; Idk either. very old. was drew in 2025
@@ -139,3 +140,11 @@ NOTE DATE; 06/06/26
 <img width="408" height="815" alt="SPY" src="https://github.com/user-attachments/assets/8e514938-e666-42ae-ba9e-dd900d22e2e3" />
 
 BLU SPY I LOVE BLU TEAM. Blu team is simply better, do not fall for RED propaganda. im number one BLU team fan yes hi hello its me
+-
+
+DATE; ???2025
+
+<img width="408" height="815" alt="oldoc lol" src="https://github.com/user-attachments/assets/9da378e2-6101-4cd5-b80f-1513ad755deb" />
+
+my old oc.... hes a pony :3 
+-
