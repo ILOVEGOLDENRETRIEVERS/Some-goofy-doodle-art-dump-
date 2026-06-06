@@ -119,7 +119,7 @@ DATE; ?????????/ also 2 years ago. If u recognise this drawing from that SPECIFI
 <img width="676" height="918" alt="Untitled381" src="https://github.com/user-attachments/assets/90eeea4f-4a8e-4b5b-9f0d-75e93f283d4b" />
 -
 
-DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u recognise this drawing DNI.
+DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u recognise this drawing from that specific server DNI.
 
 <img width="550" height="815" alt="Untitled487" src="https://github.com/user-attachments/assets/69bdde3f-82da-4541-9d89-90fb50b1d428" />
 -
